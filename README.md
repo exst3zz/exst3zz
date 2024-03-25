@@ -1,5 +1,6 @@
 ### Hi there 👋
-![image](https://github.com/exst3zz/exst3zz/assets/155752935/a0baa4c9-92fa-48ce-aeeb-79950169b3ff)
+
+![image](https://github.com/exst3zz/exst3zz/assets/155752935/d31edf1a-47c6-4243-80ee-94f540365796)
 
 
 <!--

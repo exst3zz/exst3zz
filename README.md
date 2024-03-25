@@ -1,4 +1,6 @@
 ### Hi there 👋
+![image](https://github.com/exst3zz/exst3zz/assets/155752935/a0baa4c9-92fa-48ce-aeeb-79950169b3ff)
+
 
 <!--
 **exst3zz/exst3zz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
